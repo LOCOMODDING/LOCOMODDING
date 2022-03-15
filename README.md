@@ -2,7 +2,7 @@
 - 👀 I’m interested in Google Workspace, Blockchain, Cloud Infrustructure, Security, and more!
 - 🌱 I’m currently earing Google Cloud certifications.
 - 💞️ I’m looking to collaborate on blockchain and web development projects.
-- 📫 Discord@Eunoia Entertainment#1337
+- 📫 Discord@LOCOMODDING#2350
 - 📫 Email@dylan@dylananderton.com
 
 <!---
